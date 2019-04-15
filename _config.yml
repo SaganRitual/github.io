@@ -1,2 +1,3 @@
 name: Rob Bishop, Horrible Person
 markdown: kramdown
+permalink: /blog/:year/:month/:day/:title
