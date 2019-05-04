@@ -1,3 +1,4 @@
+twist.mp4
 xcuserdata/
 .DS_Store
 assets/
@@ -10,7 +11,6 @@ graveyard/
 DerivedData*
 *.playground
 logfile
-*.mp4
 t.js
 old*
 _site/
