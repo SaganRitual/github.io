@@ -5,10 +5,10 @@ layout: feed
 <feed xmlns="http://www.w3.org/2005/Atom">
 
 	<title>Adventures in Swift</title>
-	<link href="https://SaganRitual.github.io/blog/atom.xml" rel="self"/>
-	<link href="https://SaganRitual.github.io/blog"/>
+	<link href="https://SaganRitual.github.io/samantha/atom.xml" rel="self"/>
+	<link href="https://SaganRitual.github.io/samantha"/>
 	<updated>{{ site.time | date_to_xmlschema }}</updated>
-	<id>http://hankquinlan.github.io/blog</id>
+	<id>http://saganritual.github.io/samantha</id>
 	<author>
 		<name>Rob</name>
 		<email>c.sagan.ritual@gmail.com</email>
