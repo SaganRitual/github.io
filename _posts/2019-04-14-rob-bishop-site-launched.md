@@ -1,8 +1,15 @@
 ---
 layout: post
-title: "Rob Bishop, Horrible Person, Launches Site"
-date: 2014-04-30
+title: "Hello? ...World?"
+date: 2019-04-30
 ---
 
-<i>Well. Finally got around to putting this old website together. Neat thing about it - it's powered by [Jekyll](http://jekyllrb.com) and I can use Markdown to author my posts. It actually is a lot easier than I thought it was going to be.</i>
-(Not my words. I'm following a tutorial. This is about the tenth time I've tried to create a website.)
+## Hi there! I'm Rob Bishop, professional curmudgeon and all-around horrible person.
+
+I don't really know what I'm going to do with this site. Perhaps I'll start an
+inflammatory and divisive blog. There's a big market for those. Or a blog about
+my adventures writing software using Apple's Swift programming language.
+			
+Anyway, for the moment, *Under Construction* and all that.
+
+Peace and luck
