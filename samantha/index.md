@@ -3,6 +3,8 @@ layout: default
 title: Samantha
 ---
 
+# Greetings, Fellow Humans!
+
 This is my archive of material from my alter-ego at Quora.com, Samantha Tindall-Paulos. When they caught me sock-puppeting, they
 banned me for life. Fair enough, it's there in Da Rules. What caught me off-guard was that when they ban you, they delete all your
 content. I was able to salvage a few posts before it all disappeared, some that seemed worth keeping, at the time.
