@@ -20,11 +20,11 @@ This is a continuation of my previous post on how to have an effective and lovin
 
 We left off just at the moment that you, Ms Woman, have recognized that you're starting to get upset. As soon as you notice, there are two things you must do.
 
-First, take ownership of your feelings. That means, notice that there's nothing inherently wrong with looking down women's shirts. Some women like being ogled sometimes, and some women don't mind a bit if their man wants to get an eyeful. The feelings you're having are your own, caused by who you are and how you perceive the world. Not because a universal law has been broken.
+First, take ownership of your feelings. That means, notice that there's nothing inherently wrong with looking down women's shirts. Some women like being ogled sometimes, and some women don't mind a bit if their man wants to get an eyeful. The feelings you're having are your own, caused by who you are and how you perceive the world, not by a universal law being broken.
 
-Second, allow yourself to have your feelings. They're not wrong. You're not in error, and you're not bad for having them. There's no such thing as "You shouldn't feel that way." You can't stop your emotions any more than you can stop digesting your lunch. You have no control over it.
+Second, have your feelings. They're not wrong. You're not in error, and you're not bad. No one can tell you, "You shouldn't feel that way." You can't stop your emotions any more than you can stop digesting your lunch. You have no control over it.
 
-You do have control how you treat your man. Don't punish him. He's done nothing wrong. If you're too upset to talk, then don't talk (gently telling him so is encouraged). But no silent treatment. Your goal at this point is to find a quiet place where you can be alone for a while. Until you can get there, do what you need to do to take care of yourself, without lashing out at him.
+You do have control how you treat your man. Don't punish him. He's done nothing wrong. If you're too upset to talk, then don't talk (gently telling him so is encouraged). But no silent treatment. Your goal now is to find a quiet place where you can be alone for a while. Until then, do what you need to do to take care of yourself, without lashing out.
 
 In the next post, what to do with your alone time.
 
@@ -104,66 +104,3 @@ At this point, the heavens will open, and a band of angels will sing unintelligi
 Your mileage may vary.
 
 Sometimes, just being understood by your partner can erase all of your feelings about the thing they were doing. You suddenly find yourself entirely unaffected by the behavior that used to upset you so much. Again, your results will be unique to you as a couple.
-
-If it still upsets you, ask your man if he'd be willing to stop. Ask. Don't demand. The man will not offer excuses or explantions or justifications, because he knows that it's his behavior that is upsetting you, not the reasons for his behavior. There's no reason anywhere that will change the way you feel about it. He will simply indicate whether he is willing to change or not.
-
-Next, taking responsibility for your choices.
-
-Peace and luck
-
-And Another Thing!
-How to Win The Argument, Part VIII: Taking Responsibility
-
-This is a continuation of my series on discussing your grievances with your partner in an effective and loving manner. See my previous posts for the context.
-
-We left off with the possibility that the man has declined your request, Ms Woman, that he stop looking down women's shirts, because it hurts you, as you've just shared with him in a beautiful moment of emotional intimacy.
-
-If he declines to change, then both partners have a decision to make, and both partners must take full responsibility for their decisions, no blaming each other, no excuses. The man must keep his reasons to himself. They aren't relevant to the conversation, because emotions can't be reasoned away. The man must simply stand where he stands, and be ok with standing there.
-
-Ms Woman, you must decide: are you willing to live with his choice, or not? You must never bring this subject up again. He knows everything he needs to know about the problem. He knows it hurts you. You must decide, are you going to accept that pain silently, have your feelings silently without taking them out on him, til death do you part? Whatever decision you make, then just like your man, you must stand where you stand, and be ok with it, and don't blame anyone else for it.
-
-Remember, this technique works for any kind of relationship: lovers, friends, family, any case where both people are willing to engage each other with gentleness and compassion.
-
-Peace and luck
-
-
-
-## Ignore this stuff; it's odds and ends
-And Another Thing!
-How to Win The Argument, Appendix A: Tips and Traps
-
-
-
-
-man relating to your feelings, Ms Woman. He has thought about your pain, thought about what it's like to feel that pain, and acknowledged its impact.
-
-If you've asked him whether he's willing to change, then it's time for him to own his choices. He must decide, will he change, or not. And if not, then owning his choice means not trying to justify it. His reasons don't affect your feelings, so there's nothing to be gained in discussing them. He must simply take responsibility for his choices. Whichever choice he makes, you know exactly where you stand with him.
-
-you feel unpleasant feelings, regardless of the reasons for his behavior.
-
-This sort of conversation, without blame or shame or accusations, cruelty, insults, raised voices, without enmity, can transform relationships, between lovers, between friends, family, anyone who is willing to engage with you in gentleness and compassion. There is no need to savage each other, and nothing to be gained, ever, no matter how big the issue. 
-
-You've shared a safe space together; you've been gentle with each other. You've let down your guard and made yourselves vulnerable. With any luck you feel a little bit more connected and a little bit more trusting of each other than you did half an hour before.
-
-At no point will either party grovel, or beat themselves up, or beg forgiveness. No one has done anything wrong, so there's nothing to forgive. It's ok to say "I'm sorry," as long as you both recognize that it's not an apology, it's not an admission of guilt; it's sympathy for the pain that the other is going through.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
