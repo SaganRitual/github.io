@@ -50,13 +50,13 @@ This is a continuation of my series on discussing your grievances with your part
 
 We left off with you, Ms Woman, having cooled down and thoroughly prepared yourself as described in Part III. Now you're ready to discuss the problem with your man.
 
-Go tell him you need to talk. Having seen you go off by yourself, he's probably expecting it. If he needs to prepare himself somehow, if he needs you to wait a couple of hours, let him take care of himself. When you're both ready, muster up every bit of love and compassion you have for him, sit down with him, hold his hands gently, look into his eyes with love, and tell him your problem along these lines:
+If he needs to prepare himself somehow, if he needs you to wait a couple of hours, let him take care of himself. When you're both ready, muster up every bit of love and compassion you have for him, sit down with him, hold his hands gently, look into his eyes with love, and tell him your problem along these lines:
 
-My Dearest Love, I need to tell you about a problem I'm having. You're not doing anything wrong. I'm not blaming you for anything. I'm having some feelings that I need to tell you about, and I just need you to listen. I don't need you to fix anything or offer solutions. I just need you to listen.
+My Dearest Love, I need to tell you about a problem I'm having. It's not anything you're doing wrong, or bad. I'm not blaming you, or making any demands. I'm having some feelings that I need to tell you about, and I just need you to listen. I don't need you to fix anything or offer solutions. I just need you to listen.
 
-When you look down women's shirts, I feel [feelings]. That's all.
+When you look down women's shirts, I feel [feelings].
 
-Ms Woman, that's the end of your speech. Notice that you haven't said anything about him. You haven't called him any names, or maligned his character. You haven't assigned any blame or passed judgment, you haven't punished him. You've simply stated the facts that you've agreed upon already, and told him about a feeling you're having. You've given him a safe a loving space in which to process your comments.
+Ms Woman, that's the end of your speech. Notice that you haven't said anything about him. You haven't labeled him, or disrespected him. You haven't raised your voice, or punished him. You've simply stated facts about his behavior, and told him about yourself. And you've given him a safe a loving space in which to process your comments.
 
 Next, the Man listens.
 
